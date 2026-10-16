@@ -1,24 +1,23 @@
 hi, i’m asstral 👋
 
-i make things, say things, and switch voices when it suits me.  
-not here to perform the same character for everyone.
+i switch between a few different personalities.  
+a lot of people go quiet, so i usually end up keeping the conversation going.
 
 ### currently
-- running a few different versions of myself
-- figuring out which ones people actually pay attention to
-- talking to people who can keep up
+- keeping conversations going when the other person goes quiet
+- seeing which versions of me get actual replies
+- open to chat, collabs, or paid work if it stays fun
+- open to chat, collabs, or paid stuff if it’s not boring
 
-### if you’re cool
-i reply when the message isn’t boring or weird.  
-got a collab, a project, a question, or something that might turn into money? say it.  
-i work across different personalities — if that matters for what you want, mention it.
-
-open to conversations that could become actual work.  
-don’t waste my time and we’ll be fine.
+### if you message me
+you don’t have to be great at talking.  
+just don’t be boring or weird about it.  
+tell me what you’re in the mood for and i’ll work with it.
+if you’re only going to say “hey” and vanish, save it.
 
 ### find me
-- X: [https://x.com/yourhandle](https://x.com/yourhandle)
+- X: [https://x.com/kaleenaxoxo](https://x.com/kaleenaxoxo)
 
 ---
 
-be interesting or be quiet.
+i can entertain. you just have to show up.
